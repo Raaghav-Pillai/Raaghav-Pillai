@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently looking for SWE and PM jobs. I am collaborating with a startup no their webpages and in house AI model.
+I am currently looking for SWE and PM internships.
 
 
 ## 🌐 Socials:
